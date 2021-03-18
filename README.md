@@ -1,2 +1,2 @@
 # sugaaaaar
-System can everyone all the day
+Information System can use everyone all the day
